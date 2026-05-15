@@ -1,1 +1,1 @@
-This is my personal page. Work in progress!
+This is my personal page. My goal is to make this a place to collect my publications and outside appearances, re-learning my html and markdown as I go. It will be a bit bare right now but take a look around in the meantime!
