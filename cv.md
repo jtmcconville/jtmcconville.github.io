@@ -1,4 +1,4 @@
 ---
 # Click to download my CV:
-[Français](Resume/cvfrench) <br>
-[English](Resume/cvenglish)
+[Français](Resume/cvfrench.pdf) <br>
+[English](Resume/cvenglish.pdf)
