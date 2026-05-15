@@ -6,19 +6,19 @@ title: Publications
 <br>
 “What is Caesar's? Canon Law and the Constraint of the Prince in Medieval International Law” in The Oxford Journal of Law and Religion , rwag003, (2026).
 <br>
-https://academic.oup.com/ojlr/advance-article-abstract/doi/10.1093/ojlr/rwag003/8539595
+[link](https://academic.oup.com/ojlr/advance-article-abstract/doi/10.1093/ojlr/rwag003/8539595)
 <br>
 <br>
 “Solving the ‘Burke Problem’: Perspectives on Edmund Burke’s Traditionalism” in *Noteworthy: the LA&PS Writing Prize Journal* , Vol. 5 No. 1 (2021).
 <br>
-https://lapsprize.journals.yorku.ca/index.php/default/article/view/62
+[link](https://lapsprize.journals.yorku.ca/index.php/default/article/view/62)
 <br>
 <br>
 **Blogs**
 <br>
 “The Two Swords in the Joseph Guibord Affair” in _The New Digest_ (2026) 
 <br>
-https://thenewdigest.substack.com/p/the-two-swords-in-the-joseph-guibord
+[link](https://thenewdigest.substack.com/p/the-two-swords-in-the-joseph-guibord)
 <br>
 <br>
 **Podcast Appearances**
