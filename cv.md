@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Blog Archive
+title: CV
 ---
 # Click to download my CV:
 [Français](Resume/cvfrench.pdf) <br>
