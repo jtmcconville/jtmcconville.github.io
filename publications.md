@@ -6,8 +6,8 @@ title: Publications
 <br>
 “What is Caesar's? Canon Law and the Constraint of the Prince in Medieval International Law” in The Oxford Journal of Law and Religion , rwag003, (2026).
 <br>
-<br>
 https://academic.oup.com/ojlr/advance-article-abstract/doi/10.1093/ojlr/rwag003/8539595
+<br>
 <br>
 “Solving the ‘Burke Problem’: Perspectives on Edmund Burke’s Traditionalism” in *Noteworthy: the LA&PS Writing Prize Journal* , Vol. 5 No. 1 (2021).
 <br>
