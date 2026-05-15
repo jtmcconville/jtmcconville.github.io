@@ -16,7 +16,7 @@ title: Publications
 <br>
 **Blogs**
 <br>
-“The Two Swords in the Joseph Guibord Affair” in _The New Digest_ (2026) 
+“The Two Swords in the Joseph Guibord Affair” in _The New Digest_ (2026). 
 <br>
 [link](https://thenewdigest.substack.com/p/the-two-swords-in-the-joseph-guibord)
 <br>
